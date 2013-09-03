@@ -17,6 +17,13 @@ Little Visuals - Sign up to get 7 hi-res open source images zipped up in your in
 http://littlevisuals.co/
 
 
+Free and Attribution-required
+==========
+
+Superfamous
+http://superfamous.com/
+
+
 Search Engine
 ==========
 
